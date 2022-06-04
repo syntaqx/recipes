@@ -2,10 +2,14 @@
 
 ## Tools
 
-- 1+ Gallon Stock Pot
-- Strainer
-- Cheese Cloth & Butcher's String (Optional, but ideal)
-- Hot Liquid Storage container (don't melt things!)
+- [1+ Gallon Stock Pot](https://amzn.to/390qiQt)
+- [Strainer](https://amzn.to/38NSjKR)
+
+### Recommended
+
+- [Cheese Cloth & Butcher's String](https://amzn.to/3aoFQ0m)
+- Hot Liquid Storage Container
+- Ice Cube Tray
 
 ## Ingredients
 
