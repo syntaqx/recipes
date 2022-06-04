@@ -13,7 +13,7 @@
 
 ## Ingredients
 
-- [ ] Bones from 1 whole chicken
+- [ ] Bones from 1 whole chicken - Such as a rotisserie chicken!
 - [ ] 2 Gallon of Water (1 Gallon at a time)
 - [ ] 1 Pint - Deli (Purple) Onion
 - [ ] ½ Pint Deli Carrots
