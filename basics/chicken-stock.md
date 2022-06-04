@@ -7,7 +7,7 @@
 
 ### Recommended
 
-- [Cheese Cloth & Butcher's String](https://amzn.to/3aoFQ0m)
+- [Cheese Cloth & Butcher's Twine](https://amzn.to/3aoFQ0m)
 - Hot Liquid Storage Container
 - Ice Cube Tray
 
