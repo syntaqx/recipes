@@ -33,3 +33,7 @@ Freeze in ice trays for a "bouillon" blasts.
 
 Hard roast (high heat) chicken bones along with an optional quartered onion
 (with skin), carrots and celery for a darker, heartier broth.
+
+## References
+
+- [Instruction Video](chicken-stock.mp4)
