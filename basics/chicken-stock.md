@@ -1,5 +1,12 @@
 # Chicken Stock
 
+## Tools
+
+- 1+ Gallon Stock Pot
+- Strainer
+- Cheese Cloth & Butcher's String (Optional, but ideal)
+- Hot Liquid Storage container (don't melt things!)
+
 ## Ingredients
 
 - [ ] Bones from 1 whole chicken
