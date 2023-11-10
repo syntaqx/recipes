@@ -2,6 +2,10 @@
 
 > __Note:__ This variation includes potato for some more heft, which is optional
 
+## Nutrition
+
+<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="635" src="https://www.verywellfit.com/thmb/ov4RSn-rwOmhCd-mxen-SdcUKeI=/1000x0/Nutrition-Label-Embed--341110667-ae69b4b9c5bc427d89110c65d95d0b97.png" /></a>
+
 ## Ingredients
 
 - [ ] 1 tablespoon butter
